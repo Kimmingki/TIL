@@ -70,86 +70,86 @@ All of a sudden, she started to change. - 갑자기 그녀는 변하기 시작�
 
 She got smaller and smaller until finally she was small enough to fit through the door to get to the beautiful garden. - 그녀는 점점 더 작아져서 마침내 문을 통과해 아름다운 정원에 갈 수 있을 만큼 작아졌습니다.
 
-When she got to the garden she saw the white rabbit again.
+When she got to the garden she saw the white rabbit again. - 그녀가 정원에 도착했을 때 흰 토끼를 다시 봤습니다.
 
-The rabbit had white gloves on and was holding a fan.
+The rabbit had white gloves on and was holding a fan. - 토끼는 하얀 장갑을 끼고 부채를 들고 있었습니다.
 
-He said, "If I make the Duchess wait, she will be angry!" Alice asked the white rabbit a question, but he did not hear her.
+He said, "If I make the Duchess wait, she will be angry!" Alice asked the white rabbit a question, but he did not hear her. - 그는 "공작부인을 기다리게 하면 화를 낼거야!" 라고 말했습니다. 앨리스가 흰 토끼에게 질문했지만 그는 듣지 못했습니다.
 
-He looked at Alice and dropped the gloves and the fan he was holding.
+He looked at Alice and dropped the gloves and the fan he was holding. - 그는 앨리스를 보고 들고 있던 장갑과 부채를 떨어트렸습니다.
 
-Alice picked up the fan and the gloves lying on the ground.
+Alice picked up the fan and the gloves lying on the ground. - 앨리스는 바닥에 떨어진 부채와 장갑을 주웠습니다.
 
-"I don't want to stay here all alone" she said out loud to herslef.
+"I don't want to stay here all alone" she said out loud to herself. - "나는 여기 혼자 있고 싶지 않아요!" 그녀는 큰 소리로 혼자 말했습니다.
 
-She started to cry.
+She started to cry. - 그녀는 울기 시작했습니다.
 
-The rabbit started to feel sad too.
+The rabbit started to feel sad too. - 토끼도 슬퍼지기 시작했습니다.
 
-He had made Alice cry.
+He had made Alice cry. - 그는 앨리스를 울게 만들었습니다.
 
-He said to her, "Well, Mary-Jane, what are you doing here? Bring me my fan and gloves now!" Alice was confused, because the rabbit had called her Mary-Jane.
+He said to her, "Well, Mary-Jane, what are you doing here? Bring me my fan and gloves now!" Alice was confused, because the rabbit had called her Mary-Jane. - 그는 그녀에게 "글쎄, 마리제인, 여기서 뭐하는거야? 지금 내 부채와 장갑 가져와!"라고 말했습니다. 앨리스는 토끼가 그녀를 마리제인이라고 불러서 혼란스러웠습니다.
 
-As Alice came near the white rabbit, she heard someone say, "Be careful, you are splashing red paint on my face!" She colud not believe her eyes.
+As Alice came near the white rabbit, she heard someone say, "Be careful, you are splashing red paint on my face!" She could not believe her eyes. - 앨리스가 흰 토끼에게 다가갔을 때 누군가가 "조심해, 너 내 얼굴에 빨간 페인트 튀기고 있어!" 그녀는 자신의 눈을 믿을 수 없었습니다.
 
-She saw three gardeners painting white roses red.
+She saw three gardeners painting white roses red. - 그녀는 세 명의 정원사가 흰 장미를 빨간색으로 칠하는 것을 봤습니다.
 
-"It is not my fault" replied the first gradener.
+"It is not my fault" replied the first gardener. - "내 잘못이 아냐" 첫 번째 정원사가 대답했습니다.
 
-"The second gardener pushed me!"
+"The second gardener pushed me!" - "두 번째 정원사가 날 밀었어!"
 
-"Excuse me, gentlemen, why are you painting these roses red?" Alice asked them.
+"Excuse me, gentlemen, why are you painting these roses red?" Alice asked them. - "실례합니다 여러분, 왜 장미를 빨간색으로 칠하고 계시나요?" 앨리스가 물었습니다.
 
-"We should have planted red roses, but we planted white roses by mistake. The Queen will be anry when she find out" he answered.
+"We should have planted red roses, but we planted white roses by mistake. The Queen will be angry when she find out" he answered. - "빨간 장미를 심어야 하는데 실수로 흰 장미를 심었거든 여왕님이 알면 화낼거야" 그는 대답했습니다.
 
-All of a sudden the first gardener shouted, "The Queen! The Queen!" and all three gardeners laid flat on the ground.
+All of a sudden the first gardener shouted, "The Queen! The Queen!" and all three gardeners laid flat on the ground. - 갑자기 첫 번쨰 정원사가 소리쳤습니다. "여왕님! 여왕님!" 그리고 세 명의 정원사들은 모두 땅에 납작 엎드렸습니다.
 
-The Queen came and walked towards Alice.
+The Queen came and walked towards Alice. - 여왕은 앨리스 앞으로 걸어 왔습니다.
 
-She asked in a scary tone of voice, "Who is this little girl?"
+She asked in a scary tone of voice, "Who is this little girl?" - 그녀는 무서운 목소리로 "이 작은 소녀는 누구인가?"라고 물었습니다.
 
-"My name is Alice, Your Majesty" answered Alice politely.
+"My name is Alice, Your Majesty" answered Alice politely. - "제 이름은 앨리스입니다, 폐하" 앨리스는 정중히 대답했습니다.
 
-"And who are they?" asked the Queen, pointing at the three gardeners.
+"And who are they?" asked the Queen, pointing at the three gardeners. - "그리고 저들은 누구인가?" 세 명의 정원사를 가르키며 여왕이 물었습니다.
 
-Alice replied, "How should I know? They have nothing to do with me."
+Alice replied, "How should I know? They have nothing to do with me." - 앨리스는 "제가 어떻게 알아요? 그들은 나와 아무 관련이 없어요"라고 대답했습니다.
 
-The Queen did not like the way Alice answered her question.
+The Queen did not like the way Alice answered her question. - 여왕은 앨리스가 자신의 질문에 대답한 것이 마음에 들지 않았습니다.
 
-She shouted, "Off with her head!" The king was by the Queen's side.
+She shouted, "Off with her head!" The king was by the Queen's side. - 그녀는 "머리를 쳐라!"하고 소리쳤습니다. 왕은 여왕의 곁에 있었습니다.
 
-He said to his wife, "Remeber, my dear, she's only a child."
+He said to his wife, "Remember, my dear, she's only a child." - 그는 "여보 그녀는 아직 어린애야"라고 아내에게 말했습니다.
 
-Suddenly, Alice began to grow bigger and bigger until she graw back to her normal size.
+Suddenly, Alice began to grow bigger and bigger until she graw back to her normal size. - 갑자기 앨리스는 그녀의 본래 크기로 점점 커지기 시작했습니다.
 
-The Queen screamed once more, "Off with her head!" The Queen was very angry, She wnated Alice captured.
+The Queen screamed once more, "Off with her head!" The Queen was very angry, She wanted Alice captured. - 여왕은 다시 비명을 질렀습니다, "당장 머리를 쳐라!" 여왕은 매우 화가나서 앨리스를 포로로 잡고 싶었습니다.
 
-"I am leaving this strange place and there is nothing you can do about it. I am not one of your people, you can control" said Alice.
+"I am leaving this strange place and there is nothing you can do about it. I am not one of your people, you can't control" said Alice. - "나는 이 이상한 곳을 떠날거에요 당신이 할 수 있는건 아무것도 없어요. 나는 당신 사람이 아니에요, 당신이 통제할 수 없어요" 앨리스가 말했습니다.
 
-She was not afraid of the Queen or the gardeners.
+She was not afraid of the Queen or the gardeners. - 그녀는 여왕이나 정원사를 두려워하지 않았습니다.
 
-Alice was very brave.
+Alice was very brave. - 앨리스는 매우 용감했습니다.
 
-The gardeners came together and tried to take Alice away.
+The gardeners came together and tried to take Alice away. - 정원사들이 모여서 앨리스를 데려가려고 했습니다.
 
-She tried to shake them off.
+She tried to shake them off. - 그녀는 그들을 떨쳐 버리려고 했습니다.
 
-They grabbed her arms and legs.
+They grabbed her arms and legs. - 그들은 그녀의 팔과 다리를 잡았습니다.
 
-She was crying out for them to stop.
+She was crying out for them to stop. - 그녀는 그들에게 멈추라고 소리쳤습니다.
 
-Then she realized she was lying on her sister's lap.
+Then she realized she was lying on her sister's lap. - 그 때 그녀는 자신의 자매의 무릎에 누워 있다는 것을 꺠달았습니다.
 
-"Alice, wake up, you are having a bad dream. You have been asleep for a long time!" said her sister.
+"Alice, wake up, you are having a bad dream. You have been asleep for a long time!" said her sister. - "앨리스 일어나, 나쁜 꿈을 꿨구나? 너 엄청 오랫동안 잤어!" 그녀의 자매가 말했습니다.
 
-"I had the strangest dream" said Alice.
+"I had the strangest dream" said Alice. - "나 엄청 이상한 꿈을 꿨어" 앨리스가 말했습니다.
 
-She shared the dream with her sister.
+She shared the dream with her sister. - "그녀는 자매에게 꿈을 알려줬습니다"
 
-When she was done telling her sister about the dream, Alice's sister laughed and said, "You had such an interesting dream. I am hungry now. Let's go get some snacks to eat."
+When she was done telling her sister about the dream, Alice's sister laughed and said, "You had such an interesting dream. I am hungry now. Let's go get some snacks to eat." - 앨리스가 꿈 얘기를 마치자 자매는 "정말 재밌는 꿈을 꿨구나? 나 지금 배고파 간식 먹으러 가자"라며 웃었습니다.
 
-"Oh, I am late. If I make the duchess wait, she will be angry!" said Alice.
+"Oh, I am late. If I make the duchess wait, she will be angry!" said Alice. - "오, 늦었어. 공작부인을 기다리게 하면 화를 낼거야!" 앨리스가 말했습니다.
 
-She laughed at herself.
+She laughed at herself. - 그녀는 혼자 웃었습니다.
 
-That was the smae thing the rabbit had said to her.
+That was the same thing the rabbit had said to her. - 토끼가 했던 말과 똑같았습니다.
